@@ -1,1 +1,0 @@
-# Nodin Eiendom AS
